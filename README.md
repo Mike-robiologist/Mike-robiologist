@@ -1,0 +1,4 @@
+- Hi, I’m @Mike-robiologist
+- I’m currently studing Bioinformatics at Imperial College London
+- I plan on using this space during my studies 
+- Reach me at mathomas500@gmail.com
